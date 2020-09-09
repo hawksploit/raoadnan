@@ -1,2 +1,0 @@
-# adnanakhtar
-My Portfolio
